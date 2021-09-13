@@ -1,6 +1,6 @@
 # Que ebooks são estes? 🤔
 
-São os livros usados no curso de licenciatura em letras - Português e Literatura, da Universidade Federal Fluminense. Os pdfs estão disponíveis para o público em geral no Canal Cecierj. Mas eu quero ler no Kobo, então eu vou ler no Kobo.
+São os livros usados no curso de licenciatura em letras - Português e Literatura, da Universidade Federal Fluminense. Os pdfs estão disponíveis para o público em geral no [Canal Cecierj](https://canal.cecierj.edu.br/). Mas eu quero ler no Kobo, então eu vou ler no Kobo.
 
 # Produção
  
